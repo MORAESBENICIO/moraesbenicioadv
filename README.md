@@ -19,5 +19,5 @@ Telefone/Celular: (86) 98160-3985
 E-mail: moraesbenicioadv@gmail.com
 Redes Sociais:
 
-WhatsApp: Link para WhatsApp
+WhatsApp: (86)981603985
 Instagram: @ moraesbenicio.adv
